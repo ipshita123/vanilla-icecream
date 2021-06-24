@@ -1,0 +1,1 @@
+This vanilla ice "Cream" Is great for making sundaes, ice cream sandwiches, root beer floats or on its own for a frozen creamy treat. Blending the ice cream after it has been frozen is important as it breaks up any ice crystals that form, ensuring that you end up with a creamy, not crunchy, dessert. This pairs wonderfully with dairy-free caramel sauce.
